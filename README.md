@@ -7,3 +7,6 @@ Jumanji (Sequel)  // FROM - MGMP ///
 
 Kung Fu Panda
 
+pakisthane drama
+Khaani Episode 01 
+
