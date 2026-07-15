@@ -9,4 +9,5 @@ Kung Fu Panda
 
 pakisthane drama
 Khaani Episode 01 
+Ishqiya Episode 1
 
